@@ -1,1 +1,1 @@
-# Atividades-Pr-ticas-EdN
+# Atividades-Praticas-EdN
